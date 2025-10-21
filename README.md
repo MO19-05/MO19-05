@@ -1,3 +1,3 @@
-## Hi there, I'm Mo 
+## Hi there, I'm Mo 👋
 
 
